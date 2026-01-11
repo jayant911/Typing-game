@@ -1,2 +1,1 @@
-speed typing game and its amezing
-nice
+have fun while typing
